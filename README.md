@@ -1,1 +1,2 @@
 # primo-anno
+Sono Mario un ragazzo di 19 anni appassionato al mondo dell’arte in tutte le sue sfaccettature. Proprio per questo ho scelto NTA, perché è un corso che non si limita ad un solo ambito, ma esplora nuove tecniche, riflettendo su temi attuali e anche su pensieri filosofici, alimentando la curiosità dello studente. Un’altra mia passione è visitare nuove nazioni per scoprire la loro cultura, oltre le grandi città amo conoscere i piccoli centri urbani.
